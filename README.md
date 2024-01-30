@@ -6,4 +6,4 @@ All characters, settings, and plot elements from [Original Movie Title] are the 
 
 This work is a tribute to the original film and is written out of appreciation and respect for the creators of [Original Movie Title].
 
-[Original Movie Title] represnets any movie here.
+[Original Movie Title] represents any movie here.
