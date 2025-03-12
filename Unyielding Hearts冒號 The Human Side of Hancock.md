@@ -1,3 +1,5 @@
+# Unyielding Hearts: The Human Side of Hancock
+
 An alternative ending to the movie "Hancock" could explore a different trajectory for the characters and the storyline. The original film ends with Hancock embracing his role as a hero and distancing himself from Mary to ensure both of them retain their powers. Here's an idea for an alternative ending:
 
 Alternative Ending: Hancock's Sacrifice
